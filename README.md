@@ -1,2 +1,0 @@
-# FlashSquad-RP
-Boutique FlashsquadRP
